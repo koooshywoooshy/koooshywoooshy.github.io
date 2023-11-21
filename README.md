@@ -1,2 +1,2 @@
 # koooshywoooshy.github.io
-Iñigo Joaquin Bascuña
+Iñigo Joaquin T. Bascuña
